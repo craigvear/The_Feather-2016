@@ -1,4 +1,6 @@
-# The_Feather-2016
+# The_Feather-2016 and The_Feather_Quartet-2018
+
+A performance of The Feather Quartet can be seen and heard at https://www.facebook.com/LigetiQuartet/videos/1546060428795594/ (14'40" into the video)
 
 'The Feather' and 'The Feather Quartet' are digital scorse for an improvising violin and voice (which can be the same musician), and improvising quartet. It is inspired by an extract from a Tove Jansson short story The Scolder from her book The Summer Book. In this extract an elderly grandmother is lying down on a quiet beach looking at a tiny piece of down caught in barbs of a plant leaf. She describes in great detail this feather and how it moves with the slight breeze. Her description evokes a sense of beauty in this minute event and draws attention to the profundity of concentrating on such small details. This profound seeking is at the heart of this piece; the musicians are instructed to seek such detail in the score, and the audience are invited into a careful listening experience that acts as a metaphor for the feather caught momentarily in the plant leaf on a deserted beach.
 
